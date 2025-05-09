@@ -11,5 +11,4 @@ My goal is to build fun, polished games that stand out through creative mechanic
 Best,
 Sagar Mahata
 
-Also, i need a computer to start working on my ideas, I've a clear roadmap ahead, your help needed -
 contact - contact.sagarmahata@gmail.com
